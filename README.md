@@ -1,3 +1,1 @@
-# Hi there, I'm [Tim] 👋
-
-### Backend developer
+Напишите, пожалуйста, в телеграмм https://t.me/Pajfjxhskfj
