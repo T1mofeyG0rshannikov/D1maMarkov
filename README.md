@@ -1,3 +1,3 @@
-# Hi there, I'm [Tim](https://t.me/Pajfjxhskfj) 👋
+# Hi there, I'm [Tim] 👋
 
 ### Backend developer
